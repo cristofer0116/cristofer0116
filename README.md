@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cristofer0116
-- 👀 I’m interested in en volverme Me quiero especializar en el tema de afrohouse 
+- 👀 I’m interested in en volverme DJ Me quiero especializar en el tema de afrohouse 
 - 🌱 I’m currently learning hacer musica 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... ins @csf_016
